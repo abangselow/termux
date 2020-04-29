@@ -1,2 +1,1 @@
-# turbo-octo-chainsaw
-https://github/ spamcall/prangkers/team
+Https://github.com/clayhacker/prankers/team
